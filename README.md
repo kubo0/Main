@@ -1,2 +1,2 @@
-# Main
-Main game scripts and assets
+# KURWY!!!
+JEBAĆ 
